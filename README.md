@@ -3,7 +3,7 @@
 <p align="center"><img width="250" height="auto" src="https://www.definedbeauty.ca/logo.png">
 </p>
 
-<p align="center"> An Inspirational Journey Beyond Makeup Artistry <p/>
+<p align="center"> A Journey Beyond Makeup Artistry <p/>
 
 ### Who Am I? 
 Makeup Artist and Hair Stylist <br>
