@@ -7,7 +7,7 @@
 
 ### Who Am I? 
 Makeup Artist and Hair Stylist <br>
-Inspired to Share my Journey <br>
+Inspired to Share my Story<br>
 Located in Toronto, Ontario, Canada 
 
 ### What I Do?
